@@ -1,2 +1,0 @@
-# Tarea
-Comidasssss :V
